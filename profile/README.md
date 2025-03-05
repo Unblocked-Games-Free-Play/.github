@@ -3,15 +3,13 @@
 <h2>
 <a href="http://www.play-unblocked.games">CLICK TO PLAY</a>
 </br></br></br>
-  
 </h2>
-![image](https://github.com/user-attachments/assets/54106afe-cb6c-4845-8272-0895cc09371c)
 
 
+![微信截图_20250305100802](https://github.com/user-attachments/assets/3b3ac474-18c7-4243-a1e8-472236905992)
 
 
-
-In recent years, online gaming has become a popular pastime for many, especially students seeking an enjoyable break during their school day. However, many schools and workplaces block gaming websites to prevent distractions. This is where platforms like Unblocked Games 6x come in handy.
+ In recent years, online gaming has become a popular pastime for many, especially students seeking an enjoyable break during their school day. However, many schools and workplaces block gaming websites to prevent distractions. This is where platforms like Unblocked Games 6x come in handy.
 
 ## What is Unblocked Games 6x?
 **Unblocked Games 6x** is an online platform that hosts a wide array of free-to-play games that are unblocked. This means they can be accessed even from locations or networks that typically block gaming sites. The site is designed to provide access to games that are often restricted by schools, colleges, or offices, allowing players to enjoy their favorite games without any hassle.
