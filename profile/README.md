@@ -1,13 +1,9 @@
 ## Hi there 👋
-
 <h2>
 <a href="http://www.play-unblocked.games">CLICK TO PLAY</a>
 </br></br></br>
 </h2>
-
-
 ![微信截图_20250305100802](https://github.com/user-attachments/assets/3b3ac474-18c7-4243-a1e8-472236905992)
-
 
  In recent years, online gaming has become a popular pastime for many, especially students seeking an enjoyable break during their school day. However, many schools and workplaces block gaming websites to prevent distractions. This is where platforms like Unblocked Games 6x come in handy.
 
